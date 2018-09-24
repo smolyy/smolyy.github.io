@@ -1,1 +1,0 @@
-# smolyy.github.io
